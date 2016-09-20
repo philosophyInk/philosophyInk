@@ -1,1 +1,1 @@
-# philosophyInk
+# Philosophy Ink
